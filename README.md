@@ -1,1 +1,0 @@
-# yogatherapy-website
